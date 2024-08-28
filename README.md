@@ -1,0 +1,1 @@
+Selalu belajar lah bro..!
